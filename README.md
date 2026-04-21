@@ -1,2 +1,1 @@
-dani banani,
-Discord : dani?#1000
+Banana
